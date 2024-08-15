@@ -1,9 +1,14 @@
 ## ✨ Welcome ✨
 
 👨‍🔬 I am a CompSci/DataSci student at the University of Sydney
+
 👴 At the ripe age of 25 I have now begun my journey into programming
+
 🤓 After a misspent youth immersed in video games and spreadsheets
+
 🌀 This knowledge is now being weaponised for proffessional gain.
+
+
 
 🔎 Watch closely, big things are coming...
 
