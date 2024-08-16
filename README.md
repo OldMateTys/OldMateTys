@@ -2,10 +2,10 @@
 
 Hi, I am Tyson 👋
 
-👨‍🎓 Part-time student
-🕴️ Full-time delegator
-🖍️ Incompetence weaponiser = 
-🛌 High-performance sleeper
+👨‍🎓 Part-time student  
+🕴️ Full-time delegator  
+🖍️ Incompetence weaponiser  
+🛌 High-performance sleeper  
 
 
 Some words of wisdom:
