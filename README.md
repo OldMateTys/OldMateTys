@@ -8,7 +8,7 @@ Hi, I am Tyson 👋
 🛌 High-performance sleeper  
 
 
-Some words of wisdom:
+Some words of wisdom:  
 ✨ If it can't be offshored, it can't be done ✨
 
 
