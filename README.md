@@ -3,8 +3,8 @@
 Hi, I am Tyson 👋
 
 👨‍🎓 Part-time student  
-🕴️ Full-time delegator  
-🖍️ Incompetence weaponiser  
+🕴️ Full-time Procrastinator  
+🖍️ Reformed Gamer  
 🛌 High-performance sleeper  
 
 
