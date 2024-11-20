@@ -2,10 +2,11 @@
 
 Hi, I am Tyson 👋
 
-👨‍🎓 Part-time student  
-🕴️ Full-time Procrastinator  
-🖍️ Reformed Gamer  
-🛌 High-performance sleeper  
+Just a simple man who loves a chinwag.
+
+Say hi 🙃
+
+
 
 
 
