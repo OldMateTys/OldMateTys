@@ -6,6 +6,8 @@ Just a simple man who loves a chinwag.
 
 Say hi 🙃
 
+Portfolio: www.tysonj.dev/
+
 
 
 
